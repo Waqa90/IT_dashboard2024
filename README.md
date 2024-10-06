@@ -19,4 +19,4 @@ Project timeline:
 [Project completion]
 Join the project:
 
-If you're interested in contributing, please contact [your contact information].
+If you're interested in contributing, please contact [atunaisawaqa@gmail.com].
